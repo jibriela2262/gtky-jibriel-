@@ -2,7 +2,7 @@ My name is Jibriel
 
 I'm 15 years old.
 
-I was born in a hospital
+I was born in 2004
 
 My favorite color is blue
 
